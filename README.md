@@ -1,0 +1,2 @@
+# Duality
+Towards brain uploading
